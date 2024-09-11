@@ -1,2 +1,2 @@
 # Ecoexplorers
-## Level up your eco awareness
+## Level up your eco awareness 🌲
